@@ -1,0 +1,1 @@
+*Bài 3 ví dụ tương tự bài 2, đã giải thích chi tiết ở bài 2
