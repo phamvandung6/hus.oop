@@ -1,0 +1,1 @@
+Bài 2 em làm là lấy mẫu thiết kế của bài 3 làm ví dụ luôn cho nên bài 3 giống bài 2 ạ
